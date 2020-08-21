@@ -13,23 +13,21 @@ I am still very much into trivia, though. I do [Geeks Who Drink](https://www.gee
     
 ### Professional Experience
 
-**Validity**, Broomfield, CO
+**Validity**, Broomfield, CO  
 _Sr. Technical Writer_    Aug 2019 - present
 
 Description
-
 - Bullet
 - Bullet
 
-**Return Path**, Broomfield, CO
+**Return Path**, Broomfield, CO  
 _Sr. Technical Writer_    Sep 2018 - Aug 2019
 
 Return Path acquired by Validity.
-
 - Bullet
 - Bullet
 
-**LexisNexis**, Colorado Springs, CO and Dayton, OH
-_Creative Copywriter_    Feb 2016 - Sep 2018
-_Email Marketing Specialist_    Jun 2011 - Feb 2016
+**LexisNexis**, Colorado Springs, CO and Dayton, OH  
+_Creative Copywriter_    Feb 2016 - Sep 2018  
+_Email Marketing Specialist_    Jun 2011 - Feb 2016  
 _Proofreader (contract)_    Apr 2011 - Jun 2011
